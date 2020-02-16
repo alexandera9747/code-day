@@ -10,6 +10,7 @@ Music is found in every known culture, past and present, varying widely between 
 5. Jazz
 6. Rock  
 
-I personally made my own beat/song 
-*to your left*
-### Press play and listen 
+I personally made my own beat/song   
+
+### Check out what i made here  
+[My son](file:///Users/alexanderandria/Desktop/Screen%20Shot%202020-02-15%20at%207.16.22%20PM.png)
